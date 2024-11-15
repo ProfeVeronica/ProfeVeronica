@@ -10,5 +10,8 @@ Verônica Andrade Mesquita, Professora de Matemática, Tecnologia e Robotica.
 
 veronica.andrade.mesquita@gmail.com
 
+![](https://github.com/user-attachments/assets/b03903b7-e66a-417c-bd54-df5fae19f330)
+
+
 
 
